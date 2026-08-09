@@ -1,3 +1,3 @@
-# YiJiang1992.github.io
+# Ricardocxq.github.io
 
-Yi Jiang's Homepage/姜艺的个人主页
+Xiuqi Chen's Homepage/陈修齐的个人主页
